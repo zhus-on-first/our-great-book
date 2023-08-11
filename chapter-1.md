@@ -1,3 +1,5 @@
+Chapter 1: It begins.
+
 Stop! Don't shoot fire stick in space canoe! Cause explosive decompression!
 
 Oh, how I wish I could believe or understand that! There's only one reasonable course of action now: kill Flexo! It's just like the story of the grasshopper and the octopus. All year long, the grasshopper kept burying acorns for winter, while the octopus mooched off his girlfriend and watched TV. But then the winter came, and the grasshopper died, and the octopus ate all his acorns. Also he got a race car. Is any of this getting through to you?
