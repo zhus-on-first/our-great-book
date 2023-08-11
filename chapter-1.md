@@ -1,4 +1,8 @@
+<<<<<<< HEAD
 Chapter 1
+=======
+Chapter 1: It begins.
+>>>>>>> main
 
 Stop! Don't shoot fire stick in space canoe! Cause explosive decompression!
 
